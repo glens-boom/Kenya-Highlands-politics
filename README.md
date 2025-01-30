@@ -16,7 +16,7 @@
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=yellow&lines=BROWNII+FOR+ACADEMICS)](https://git.io/typing-svg)
-https://files.catbox.moe/08j1uj.jpg
+
 
 ## BROWNII FOR ACADEMICS 🎯
 
